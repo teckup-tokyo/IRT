@@ -37,7 +37,7 @@ https://docs.google.com/forms/d/1zyvj2AD28EZzzT2YzGOJbBLb3SBxKzupBB6mKC1BRc4/vie
 
 
 ## 開催概要(日程、会場)
-【日時】2020-03-11(水) 19:30 ～ 21:00  
+【日時】未定（平日開催予定）19:30 ～ 21:00  
 【場所】株式会社ウィルゲート  
 【住所】東京都渋谷区渋谷3-12-18 渋谷南東急ビル2F  
   
